@@ -3,12 +3,12 @@
 Kelren Gama Neves, N43. 
 Patrick Silva Dos Santos, N26.
 
- Todas as cartas de amor são ridículas
+**Todas as cartas de amor são ridículas**
 
 Todas as cartas de amor são
 Ridículas.
 Não seriam cartas de amor se não fossem
-Ridículas.
+Ridículas. 
 
 Também escrevi em meu tempo cartas de amor,
 Como as outras,
@@ -27,7 +27,8 @@ Ridículas.
 Quem me dera no tempo em que escrevia
 Sem dar por isso
 Cartas de amor
-Ridículas.
+
+* *Ridículas.* *
 
 A verdade é que hoje
 As minhas memórias
@@ -40,7 +41,14 @@ Como os sentimentos esdrúxulos,
 São naturalmente
 Ridículas.) 
 
-![Isso é uma imagem](https:https://www.pinterest.com/pin/721350065306842662/)
+![Isso é uma imagem](https://cdn.atarde.com.br/img/2016/06/carta-de-amor-dia-dos-namorados_1643362.jpg?xid=4027820)
+
+
+
+fontes- Poema, todas as poesias de amor são ridiculas. 
+Imagem, escrevem-se cartas de amor/ A carta. 
+
+@LiziBugalski
 
 
 
